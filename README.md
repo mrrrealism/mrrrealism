@@ -1,16 +1,15 @@
-## Hi there 👋
+![](tumblr_cc2b157bc1383ce720c50195f0946cae_eca66728_1280.png)
 
-<!--
-**mrrrealism/mrrrealism** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+HIII !!! i'm mr realism / joey !!!!!!!!!! im all over tje place on 18+ and safe sevrer... see if u can spot me >:D
 
-Here are some ideas to get you started:
+i use he they pronouns !!!!! pleeezz dont refer to me as a girl it's very Ez. ill /kill u if u do u see. cuz im that cool and powerful
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+DNI !!!! : kodacons + mr realism kinnies / yumes ...  . . . . Dats basically it.
+
+INT : ROBLXOD MYTH ENJOYERS!! I LOVVV U ALL YES YES YES
+
+THIN ICE : UNDER 13S . >!>!
+
+PLEASE IWCARE ALWAYS OK? OK
+
+![](tumblr_69fb00c5cf3d4e06234124e320c2c20e_261d13a0_400.webp) 
